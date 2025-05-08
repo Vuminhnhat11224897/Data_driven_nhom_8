@@ -1,1 +1,3 @@
-Slide thuyết trình và code nhóm 8
+Slide thuyết trình và code nhóm 8 
+
+https://www.canva.com/design/DAGmwbIOqAI/SmU6Aqw3CJ6LT_z1optVTw/edit?ui=eyJBIjp7fX0&fbclid=IwY2xjawKJMBVleHRuA2FlbQIxMABicmlkETBnTVBURGxJdXdKeXJXemxiAR6esoE1oUA1AylkxfuNDuM4d0FJIi-m5-1Y4356ODLa0mQ8Oj-cd6uYFx6GlA_aem_peHAP-9taXmCWimtrjk3QA
